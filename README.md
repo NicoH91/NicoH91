@@ -1,6 +1,6 @@
 Hello there! 👋 My name is Nicolas.
 
-I have traveled the world in early ages as a member of Disney Cruise Line 🛳️.
+I have traveled the world in  my early ages as a member of Disney Cruise Line 🛳️.
 
 Where I visited many places and learned about different cultures 🏖️
 
